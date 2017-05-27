@@ -1,1 +1,1 @@
-1021 days of endless commiting and counting..
+24 days of endless commiting and counting..
